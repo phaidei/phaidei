@@ -6,3 +6,5 @@
 
 ![Tumblr_l_132266409342806](https://github.com/user-attachments/assets/22c731f5-f0b2-4f01-a083-2ec646ff3ce1)
 ![Gbxz_6MaIAAm-XJ](https://github.com/user-attachments/assets/648330e5-ce52-445b-86d9-3c1e89e7e880)
+![1000049394](https://github.com/user-attachments/assets/a7b1e426-be9f-48c8-ab5d-f35bb4442c1f)
+look at wife. . . so soft.... so stupid.... so cute...
